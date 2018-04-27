@@ -1,6 +1,6 @@
 # Favourite Flickr & Twitter
 
-**Latest Update: 01:46 27/04/2018**
+**Latest Update: 20:40 27/04/2018**
 
 ## Flickr
 * [張 硯池](https://www.flickr.com/photos/127897076@N08/)
@@ -13,6 +13,35 @@
 * [Hoàng Phúc](https://www.flickr.com/photos/hoangphuc9x/)
 * [DIO@Taiwan](https://www.flickr.com/photos/dio-tw/)
 * [Long Pham](https://www.flickr.com/photos/111636373@N07/)
+* [\*\*Ming**](https://www.flickr.com/photos/89367233@N05/)
+* [阿 謙](https://www.flickr.com/photos/141608623@N05/)
+* [Aki sa](https://www.flickr.com/photos/2009mio/)
+* [Fano Guijarro](https://www.flickr.com/photos/fano_red/)
+* [Trà Lê](https://www.flickr.com/photos/traleeee/)
+* [HaiShinG](https://www.flickr.com/photos/0492372665/)
+* [harrypham1986](https://www.flickr.com/photos/harrypham-photography/)
+* [黃阿文](https://www.flickr.com/photos/wen318/)
+* [KK DD](https://www.flickr.com/photos/k2d2/)
+* [Meimei1998](https://www.flickr.com/photos/419ptg/)
+* [Nyaa Photography](https://www.flickr.com/photos/nyaaphoto/)
+* [pon'z](https://www.flickr.com/photos/ponz_pic/)
+* [profeel](https://www.flickr.com/photos/profeel/)
+* [nikumikyo-kyo](https://www.flickr.com/photos/yancihan/)
+* [Snow yuki](https://www.flickr.com/photos/snowfairy8/)
+* [陳政安 中部攝影人](https://www.flickr.com/photos/130714962@N08/)
+* [Tan](https://www.flickr.com/photos/153589246@N07/)
+* [Sexy Funk Pig 性感放克豬](https://www.flickr.com/photos/130264312@N06/)
+* [ha cong](https://www.flickr.com/photos/133044728@N07/)
+* [freemen15](https://www.flickr.com/photos/89282736@N02/)
+* [FEI](https://www.flickr.com/photos/100491716@N07/)
+* [CK.御](https://www.flickr.com/photos/63373691@N03/)
+* [Tuan An Ho](https://www.flickr.com/photos/123789481@N03/)
+* [良威 李](https://www.flickr.com/photos/leewai0104/)
+* [何猫](https://www.flickr.com/photos/refixxx/)
+* [Fantasy Factory](https://www.flickr.com/photos/fantasy_factory/)
+* [楊 崧平](https://www.flickr.com/photos/ed-yang/)
+* [孟翰 蔡](https://www.flickr.com/photos/jasoncut/)
+* [Eric Wong Photography](https://www.flickr.com/photos/ericwong888/)
 
 ## Twitter
 * [サク (@saku93)](https://twitter.com/saku93)
