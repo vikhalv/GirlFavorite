@@ -12,6 +12,7 @@
 * [Hiếu Phạm](https://www.flickr.com/photos/135093719@N02/)
 * [Hoàng Phúc](https://www.flickr.com/photos/hoangphuc9x/)
 * [DIO@Taiwan](https://www.flickr.com/photos/dio-tw/)
+* [Long Pham](https://www.flickr.com/photos/111636373@N07/)
 
 ## Twitter
 * [サク (@saku93)](https://twitter.com/saku93)
